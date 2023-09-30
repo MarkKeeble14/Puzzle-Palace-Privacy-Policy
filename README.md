@@ -1,0 +1,1 @@
+Puzzle Palace does not collect any personal data such as names, emails, phone numbers, demographic data, etc.
